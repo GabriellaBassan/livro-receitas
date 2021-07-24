@@ -12,7 +12,7 @@
 
 * CALDA: 
   *  1/2 xíc de polpa de maracujá
-  * 1/4 xíc de açúcar
+  *  1/4 xíc de açúcar
 
 ### Modo de Preparo
 
